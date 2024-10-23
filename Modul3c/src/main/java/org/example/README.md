@@ -1,0 +1,1 @@
+u dont need to go to school to learn about me
